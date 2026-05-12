@@ -1,4 +1,4 @@
-# 
+# vip meme coin sniper bot | trailing-stop + new-token-detection offers the most advanced meme coin sniper bot, with trailing-stop and new-token-detection. Ideal for professional
 
 
 
